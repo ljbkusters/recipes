@@ -18,7 +18,7 @@ thyme                       -               1 tsp
 fresh basil                 chopped         2 Tbsp 
 
 (3-4 servings)
-  
+ 
 # Preparation
 
   In a large cast iron skillet heat oil over medium heat, 
